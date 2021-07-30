@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Volta-xu
+- 👀 I’m interested in coding and music
+- 🌱 I’m currently learning coding
+- 📫 You can reach me by 2528378331@qq.com or volta.xu@gmail.com
+- I'm looking forward to making more friends who have tha same interests with me!
