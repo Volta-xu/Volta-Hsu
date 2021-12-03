@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Volta-xu
 - 👀 I’m interested in coding and music
-- 🌱 I’m currently learning C language and web security
+- 🌱 I’m currently learning cyber security
 - 📫 You can reach me by 2528378331@qq.com / volta.xu@gmail.com / volta_xu@163.com
 - I'm looking forward to making much more progress on the road of coding!
