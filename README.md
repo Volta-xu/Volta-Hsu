@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Volta-xu
+- 👋 Hi, I’m @Volta Hsu
 - 👀 I’m interested in coding and music
 - 🌱 I’m currently learning cyber security
 - 📫 You can reach me by 2528378331@qq.com / volta.xu@gmail.com / volta_xu@163.com
