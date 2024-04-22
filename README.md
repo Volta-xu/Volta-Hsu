@@ -1,5 +1,3 @@
 - 👋 Hi, I’m @Volta Hsu
-- 👀 I’m interested in coding and music
 - 🌱 I’m currently learning cyber security
-- 📫 You can reach me by 2528378331@qq.com / volta.xu@gmail.com / volta_xu@163.com
-- I'm looking forward to making much more progress on the road of coding!
+- 📫 You can reach me by volta.xu@gmail.com
